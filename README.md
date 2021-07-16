@@ -1,6 +1,6 @@
 # ikoko125
 🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔
-https://ikokojp/#/about
+https://ikoko.jp/#/about
 🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔
 
 <!--
