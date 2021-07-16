@@ -1,4 +1,7 @@
-### 🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔
+# ikoko125
+🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔
+https://ikokojp/#/about
+🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔🤔
 
 <!--
 **ikoko125/ikoko125** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
